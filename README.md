@@ -1,1 +1,0 @@
-# Veritaban-_odev
